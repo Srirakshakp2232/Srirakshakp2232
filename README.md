@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Sriraksha KP
+- 👀 I’m interested in developing new tools and implementing new technologies by applying my skill sets
+- 🌱 I currently completed my java full stack intren position 
+- 💞 I’m looking to collaborate on ongoing project in industry by applying all my technical knowledge
+- 📫 You can reach me @Srirakshakp2232
+- ⚡ Let's Learn and develop a Digital world.
