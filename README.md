@@ -5,5 +5,5 @@
 - 📫 You can reach me @Srirakshakp2232
 - ⚡ Let's Learn and develop a Digital world.
 
-- I have developed sevral mini projects which i will be posting in my repository if your keen to know about my skill set you can go through my repository
+- I have developed several mini projects which i will be posting in my repository if your keen to know about my skill set you can go through my repository
   
